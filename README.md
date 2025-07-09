@@ -97,9 +97,8 @@ These actions will not only improve fairness and compliance but also boost moral
 
 ![image](https://github.com/user-attachments/assets/6e187c2d-481f-4cc8-955e-b3451d031a0a)
 
+![image](https://github.com/user-attachments/assets/692d2b96-214b-499e-bc49-e1a9c037293c)
 
-*Click below for project work*
-
-https://github.com/user-attachments/files/21064737/Palmoria.Group.emp-data.xlsx)
+*Click below for project File*
 
 https://docs.google.com/spreadsheets/d/1RUWhkLvfgUnCIMTFjLuVocVFqYwg5fu4/edit?usp=sharing&ouid=113449647335728769638&rtpof=true&sd=true
