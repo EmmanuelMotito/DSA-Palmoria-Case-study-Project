@@ -93,6 +93,11 @@ Maintain monthly HR analytics reports
 
 These actions will not only improve fairness and compliance but also boost morale, retention, and employer reputation.
 
+### Project Snapshot
+
+![image](https://github.com/user-attachments/assets/6e187c2d-481f-4cc8-955e-b3451d031a0a)
+
+
 *Click below for project work*
 
 https://github.com/user-attachments/files/21064737/Palmoria.Group.emp-data.xlsx)
